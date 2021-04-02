@@ -1,4 +1,4 @@
-Super Trunfo - Dia 9
+Super Trunfo 
 --------------------
 
 
